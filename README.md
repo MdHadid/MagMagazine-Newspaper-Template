@@ -1,1 +1,0 @@
-It is online newspaper/magazine web template.
